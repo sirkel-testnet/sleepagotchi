@@ -1,6 +1,6 @@
 # Sleepagotchi Auto Reff
 
-📯 Register : [Sleep A Gotchi Here] (https://mcpst.app.link/4cceP5wBOVb)
+📯 Register : [Sleep A Gotchi Here](https://mcpst.app.link/4cceP5wBOVb)
 
 Fitur:
 
